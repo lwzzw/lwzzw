@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **weixin1914@gmail.com**
 
-- 📄 Know about my experiences [https://limzhengwei.com](https://limzhengwei.com)
+- 📄 Know about my experiences [https://www.limzhengwei.com](https://www.limzhengwei.com)
 
 - ⚡ Fun fact **I think I am funny**
 
